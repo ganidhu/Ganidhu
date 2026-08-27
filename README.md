@@ -1,14 +1,12 @@
-# Ganidhu Kandepola :)
-
 `Builder` &nbsp;·&nbsp; `AI Consultant` &nbsp;·&nbsp; `Filmmaker`
 
-I started with coding, then editing and over the years I've edited for
-all the way from small startups to million dollar agencies 🇦🇺🇺🇸
+I started with coding, then editing and over the years I've edited
+for small startups to million dollar agencies! 🇦🇺🇺🇸
 
 But it's evolved into a lot more than that.
-Now I'm helping companies figure out AI & founders to build personal brands.
+Now I'm helping companies figure out AI & founders to build cool personal brands.
 
-Checkout my [YouTube](https://www.youtube.com/@ItzGanidhu), [X (Twitter)](https://x.com/ItzGanidhu), [Instagram](https://www.instagram.com/ganidhukandepola/), or [LinkedIn](https://www.linkedin.com/in/ganidhuk/).
+Check out [my site](www.ganidhu.com) :)
 
 ## What I'm Creating
 
