@@ -11,4 +11,4 @@ Check out [my site](https://www.ganidhu.com) :)
 ## What I'm Creating
 
 - **[YouTube / Vlogs](https://www.youtube.com/@ItzGanidhu)** — Sharing raw, behind-the-scenes vlogs documenting my journey
-- **[YouTube / Tech & AI](https://www.youtube.com/@ItzGanidhu)** — Uploading videos covering tech, unboxings, and Al Tools.
+- **[YouTube / Tech & AI](https://www.youtube.com/@ItzGanidhu)** — Uploading videos covering tech, unboxings, and AI tools.
