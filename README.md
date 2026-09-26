@@ -6,7 +6,7 @@ for small startups to million dollar agencies! 🇦🇺🇺🇸
 But it's evolved into a lot more than that.
 Now I'm helping companies figure out AI & founders to build cool personal brands.
 
-Check out [my site](https://www.ganidhu.com) :)
+Check out [my site](https://ganidhu.com) :)
 
 ## What I'm Creating
 
